@@ -20,6 +20,6 @@ I focus on making characters feel alive — from simple idle civilians to full A
 ---
 
 ## 📫 Contact
-- Roblox: [@yourusername](https://www.roblox.com/users/your_id/profile)  
-- Discord: Yemi#XXXX  
-- YouTube: [Your Channel](https://youtube.com/@your_channel)
+- Roblox: [Winihead2091]
+- Discord: willy_a
+- YouTube: [Yemi(http://www.youtube.com/@winihead)]
