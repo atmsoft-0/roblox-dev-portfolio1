@@ -6,9 +6,6 @@ I focus on making characters feel alive — from simple idle civilians to full A
 
 ---
 
-
----
-
 ## 🧠 Skills
 - Lua / Luau  
 - Roblox Studio  
